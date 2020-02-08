@@ -1,4 +1,4 @@
 # selfedu
 YOU
-Are
+ARE
 GHEY...
